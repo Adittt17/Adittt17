@@ -24,7 +24,7 @@
 - Real-time AI Applications
 
 ## 📫 How to Reach Me
-- Email: adityopangestu17@gmail.com
+- Email: adityopangestu01@gmail.com
 - LinkedIn: [Adityo Pangestu](https://www.linkedin.com/in/adityopangestu)
 - Instagram: [@adityopangestu_](https://instagram.com/pangestu.adityo)
 
